@@ -1,1 +1,2 @@
 # Learn
+[长租公寓暴雷自如房东破局方案](https://github.com/HanciY/Learn/blob/main/Law/2020/1127/%E9%95%BF%E7%A7%9F%E5%85%AC%E5%AF%93%E6%9A%B4%E9%9B%B7%E8%87%AA%E5%A6%82%E6%88%BF%E4%B8%9C%E7%A0%B4%E5%B1%80%E6%96%B9%E6%A1%88.md)
